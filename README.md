@@ -1,2 +1,2 @@
-# Project-Zek
-Project Zek
+THIS CODE IS UNDER 1994 
+NZ COPYRIGHT ACT
